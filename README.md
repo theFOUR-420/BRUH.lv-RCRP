@@ -1,2 +1,2 @@
-# BRUH.lv-RP
-BRUH.lv RP
+# BRUH.lv-RCRP
+BRUH.lv RC-RP
